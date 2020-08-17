@@ -1,1 +1,1 @@
-# [Sandy Long]'s Notes
+# Sandy Long's Notes
